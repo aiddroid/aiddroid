@@ -20,6 +20,6 @@ Here are some ideas to get you started:
 
 > Stay Hungry, Stay Foolish.Think Different.
 
-🇨🇳 China Shenzhen・🕹Web developer
+🇨🇳 China・🕹Web developer
 
 https://aiddroid.com
